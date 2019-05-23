@@ -1,4 +1,4 @@
-## Inbound i outbound marketing
+## Inbound & outbound marketing
 
 The modern world is largely based on the Internet. Continuous flow of information, conducting banking transactions, online shopping - these activities are more and more often starting on online platforms. They are finalized in real life, e.g. in the form  of purchased items, selected services or transactions made. In order to take place for these activities, the recipient - client is needed. In marketing, a potential customer or recipient should be found - including relevant services. One of them is [cominer.io](https://cominer.io).
   
